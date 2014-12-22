@@ -35,8 +35,26 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Peace with her foure garders Viz. fiue morall meditations: of concord, chastitie, constancie. Courte
+PEACE WITH HER FOVRE GARDERS.VIZ.Fiue Morall Meditations: OF Concord, Chastitie, Constancie. CourtesSOme loathing Peace, wish Warre, because vnknowne,To them Peace is like Manna, common growne:I such 
+1. TO THE RIGHT REVEREND FATHER IN GOD, IOHN, LORD BISHOP of Lincoln, Lord Keeper of the Great Seale, and one of his MAIESTIES most Honorable Priuy Councell.
+
+1. To the curious READER.
+
 #####Body#####
+
+1. MEDITATION I. Of Peace and Concord.
+
+1. MEDITATION 2. Of Chastitie.
+
+1. MEDITATION 3. Of Constancy.
+
+    _ Authoris Uotum.
+
+1. MEDITATION 4. Of Courtesie, or Humanity.
+
+1. MEDITATION 5. Of Grauitie.
+
+1. To the Author.
 
 **Types of content**
 
