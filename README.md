@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-PEACE WITH HER FOVRE GARDERS.VIZ.Fiue Morall Meditations: OF Concord, Chastitie, Constancie. CourtesSOme loathing Peace, wish Warre, because vnknowne,To them Peace is like Manna, common growne:I such 
+SOme loathing Peace, wish Warre, because vnknowne,To them Peace is like Manna, common growne:I such 
 1. TO THE RIGHT REVEREND FATHER IN GOD, IOHN, LORD BISHOP of Lincoln, Lord Keeper of the Great Seale, and one of his MAIESTIES most Honorable Priuy Councell.
 
 1. To the curious READER.
